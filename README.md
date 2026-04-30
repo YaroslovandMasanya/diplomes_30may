@@ -1,0 +1,1 @@
+# diplomes_30may
